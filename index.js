@@ -1,4 +1,4 @@
 
 
-//1. learning pr.
+//1. learning
 //2. in progress.
